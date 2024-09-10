@@ -8,7 +8,7 @@
 - little soy sauce
 - little sesame oil
 - sesame seeds
-- red onion
+- pickled red onion
 - green onion
 - grated ginger
 - lime
